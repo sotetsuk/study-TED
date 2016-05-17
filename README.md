@@ -22,6 +22,6 @@
 
 ### 3. Jay Walker on the world’s English maniaa
 
-[![Jay Walker on the world’s English maniaa](https://img.youtube.com/vi/ZpILR21GWao/0.jpg)](https://www.youtube.com/watch?v=ZpILR21GWao)
+[![Jay Walker on the world’s English mania](https://img.youtube.com/vi/ZpILR21GWao/0.jpg)](https://www.youtube.com/watch?v=ZpILR21GWao)
 
 <!-- [![](https://img.youtube.com/vi//0.jpg)](https://www.youtube.com/watch?v=) -->
