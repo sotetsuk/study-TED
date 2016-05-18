@@ -24,4 +24,14 @@
 
 [![Jay Walker on the world’s English mania](https://img.youtube.com/vi/ZpILR21GWao/0.jpg)](https://www.youtube.com/watch?v=ZpILR21GWao)
 
+#### Impressive 3 sentenses
+
+- That’s why this year China will become the world’s largest English-speaking country.
+- Her score on this one test literally determines her future.
+- Like the harnessing of electricity in our cities or the fall of the Berlin Wall, English represents hope for a better future
+
+### 4. Derek Sivers: How to start a movement
+
+[![](https://img.youtube.com/vi/RXMnDG3QzxE/0.jpg)](https://www.youtube.com/watch?v=RXMnDG3QzxE)
+
 <!-- [![](https://img.youtube.com/vi//0.jpg)](https://www.youtube.com/watch?v=) -->
