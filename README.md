@@ -34,4 +34,8 @@
 
 [![](https://img.youtube.com/vi/RXMnDG3QzxE/0.jpg)](https://www.youtube.com/watch?v=RXMnDG3QzxE)
 
+- Now, if you notice that the first follower is actually an underestimated form of leadership in itself.
+- The first follower is what transforms a lone nut into a leader. 
+- It’s important to show not just to show the leader, but the followers, because you find that new followers emulate the followers, not the leader.
+
 <!-- [![](https://img.youtube.com/vi//0.jpg)](https://www.youtube.com/watch?v=) -->
