@@ -38,4 +38,8 @@
 - The first follower is what transforms a lone nut into a leader. 
 - It’s important to show not just to show the leader, but the followers, because you find that new followers emulate the followers, not the leader.
 
+### 5. Ric Elias: 3 things I learned while my plane crashed
+
+[![](https://img.youtube.com/vi/8_zk2DpgLCs/0.jpg)](https://www.youtube.com/watch?v=8_zk2DpgLCs)
+
 <!-- [![](https://img.youtube.com/vi//0.jpg)](https://www.youtube.com/watch?v=) -->
