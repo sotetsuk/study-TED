@@ -51,5 +51,10 @@
 - Above all, above all, the only goal I have in life is to be a good dad.
 
 
+### 6. Mark Bezos: A life lesson from a volunteer firefighter
+
+[![](https://img.youtube.com/vi/sAQfzHBpRsc/0.jpg)](https://www.youtube.com/watch?v=sAQfzHBpRsc)
+
+#### Impressive 3 sentenses
 
 <!-- [![](https://img.youtube.com/vi//0.jpg)](https://www.youtube.com/watch?v=) -->
