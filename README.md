@@ -42,4 +42,12 @@
 
 [![](https://img.youtube.com/vi/8_zk2DpgLCs/0.jpg)](https://www.youtube.com/watch?v=8_zk2DpgLCs)
 
+#### Impressive 3 sentenses
+
+- I no longer want to postpone anything in life.
+- And I regretted the time I wasted on things that did not matter with people that matter.
+- Above all, above all, the only goal I have in life is to be a good dad.
+
+
+
 <!-- [![](https://img.youtube.com/vi//0.jpg)](https://www.youtube.com/watch?v=) -->
