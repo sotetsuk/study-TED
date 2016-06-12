@@ -56,5 +56,12 @@
 [![](https://img.youtube.com/vi/sAQfzHBpRsc/0.jpg)](https://www.youtube.com/watch?v=sAQfzHBpRsc)
 
 #### Impressive 3 sentenses
+- When I found the captain, he was having a very engaging conversation with the homeowner, who was surely having one of the worst days of her life.
+- Here was some lawyer or money manager who, for the rest of his life, gets to tell people that he went into a burning building to save a living creature, just because he beat me by five seconds.
+- Not every day is going to offer us a chance to save somebody’s life, but every day offers us an opportunity to affect one
+
+### Arianna Huffington: How to succeed? Get more sleep
+
+[![](https://img.youtube.com/vi/nncY-MA1Iu8/0.jpg)](https://www.youtube.com/watch?v=nncY-MA1Iu8)
 
 <!-- [![](https://img.youtube.com/vi//0.jpg)](https://www.youtube.com/watch?v=) -->
