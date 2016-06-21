@@ -60,8 +60,24 @@
 - Here was some lawyer or money manager who, for the rest of his life, gets to tell people that he went into a burning building to save a living creature, just because he beat me by five seconds.
 - Not every day is going to offer us a chance to save somebody’s life, but every day offers us an opportunity to affect one
 
-### Arianna Huffington: How to succeed? Get more sleep
+
+### 7. Richard St. John’s 8 secrets of success
+[![](https://img.youtube.com/vi/UN79-Tv5GHY/0.jpg)](https://www.youtube.com/watch?v=UN79-Tv5GHY)
+
+
+### 8. Arianna Huffington: How to succeed? Get more sleep
 
 [![](https://img.youtube.com/vi/nncY-MA1Iu8/0.jpg)](https://www.youtube.com/watch?v=nncY-MA1Iu8)
+
+#### Impressive 3 sentenses 
+- In fact, I have a feeling that if Lehman Brothers was Lehman Brothers and Sisters, they might still be around.
+- And I felt like saying to him — but I didn’t say it — I felt like saying, “You know what? If you had gotten five, this dinner would have been a lot more interesting.”
+- So I urge you to shut your eyes and discover the great ideas that lie inside us, to shut your engines and discover the power of sleep.
+
+
+### 9. Laura Trice suggests we all say thank you
+[![](https://img.youtube.com/vi/ag-Oyn8vIPE/0.jpg)](https://www.youtube.com/watch?v=ag-Oyn8vIPE)
+
+
 
 <!-- [![](https://img.youtube.com/vi//0.jpg)](https://www.youtube.com/watch?v=) -->
