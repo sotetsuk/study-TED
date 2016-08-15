@@ -78,6 +78,13 @@
 ### 9. Laura Trice suggests we all say thank you
 [![](https://img.youtube.com/vi/ag-Oyn8vIPE/0.jpg)](https://www.youtube.com/watch?v=ag-Oyn8vIPE)
 
+#### Impressive 3 sentenses
+- I’m here to talk to you about the importance of praise, admiration and thank you, and having it be specific and genuine
+- And then my question became, am I the only one who does this?
+- I want you to true your wheels: be honest about the praise that you need to hear.
 
+### 10. Graham Hill: Less stuff, more happiness
+
+[![](https://img.youtube.com/vi/L8YJtvHGeUU/0.jpg)](https://www.youtube.com/watch?v=L8YJtvHGeUU)
 
 <!-- [![](https://img.youtube.com/vi//0.jpg)](https://www.youtube.com/watch?v=) -->
